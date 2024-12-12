@@ -1,6 +1,6 @@
 # AmyTelecom官网地址
 
-最新地址：[amysecure.com](https://www.amysecure.com?language=chinese)
+最新地址：[amytele.net](https://www.amytele.net/)
 
 ## AmyTelecom介绍
 
